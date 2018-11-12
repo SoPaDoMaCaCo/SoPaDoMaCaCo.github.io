@@ -9,7 +9,7 @@ Blog for people likes RedDeadRemption 2!! New video game and the best game for R
 
 ### More Information
 
-For more info of the gqame, go to the Rockstargames Page.
+For more information of the game, go to the Rockstargames main page.
 
 ### Contact me
 
