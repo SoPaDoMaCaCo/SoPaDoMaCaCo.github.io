@@ -3,7 +3,7 @@ layout: post
 title: Buy for it!
 ---
 
-![rdr2 image](/images/Asd.png)
+![Asd image](/images/Asd.png)
 
 Hi -- this is my first blog post.
 
