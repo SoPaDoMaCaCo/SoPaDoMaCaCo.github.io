@@ -1,9 +1,9 @@
 ---
 layout: post
-title: About the game
+title: Buy for it!
 ---
 
-![rdr2 image](/images/rdr2.png)
+![rdr2 image](/images/Asd.png)
 
 Hi -- this is my first blog post.
 
