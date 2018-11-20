@@ -1,6 +1,6 @@
 ---
 layout: post
-title: RedDeadRemptionBest2018
+title: RedDeadRedemptionBest2018
 ---
 
 ![big picture](/images/Rdp212.jpg)
