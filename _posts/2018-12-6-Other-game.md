@@ -1,9 +1,6 @@
 ---
 layout: post
-title: Game
----
-
-## Fornite Game
+title: Fornite Game LOL!!
 
 ![Fornitelol](/images/fornitepos-2.jpg)
 
