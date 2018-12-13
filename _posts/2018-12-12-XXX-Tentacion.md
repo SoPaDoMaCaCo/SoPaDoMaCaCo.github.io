@@ -7,5 +7,5 @@ title: Triple X
 
 ## TripleXTentacion.
 
-He is my favorite Rapper, but he is dead, but some people think he still alive, some are sad and happy for him. I like the music call "Guardian Angel" and "The Remedy a broken heart" or "Carry on". Cause of his dead a gun shot. he go to the jail a lot of times and he kill a guy in the jail.
+He is my favorite Rapper, but he is dead, but some people think he still alive, some are sad and happy for him. I like the music call "Guardian Angel" and "The Remedy a broken heart" or "Carry on".  he died in a shooting. he went to the jail a lot of times and he kill a guy in the jail.
 
