@@ -1,10 +1,11 @@
 ---
 layout: post
-title: History
+title: Triple X 
 ---
 
 ![TripleX](/images/TripleX.jpg)
 
-## Triple X 7 XxxTentacion.
+## TripleXTentacion.
 
-He is my favorite Rapper
+He is my favorite Rapper, but he is dead, but some people think he still alive, some are sad and happy for him. I like the music call "Guardian Angel" and "The Remedy a broken heart" or "Carry on". Cause of his dead a gun shot. he go to the jail a lot of times and he kill a guy in the jail.
+
